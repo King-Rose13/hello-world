@@ -1,8 +1,7 @@
 # hello-world (Commandment & Research-Development Vessel)
 A message from 'The 13th Native Royal Battalion' 
 Once a Marine, always a Marine. I've had the insatiable desire to interract with likeminded beings living with a powerful calling that's beyond their own gain. Thrusting immediately into action, fighting without hesitance for what is right.  
-'Planet Earth' can be a horrible place, but mystery encompasses the heart and takes us on a journey that's truly unforgettable, as well as life-changing for better or worse. Only you decide. 
-From Essassani First-Contact Specialist, SpaceCraft Pilot, & Research-Development of Genetic Materials (Stock)
+'Planet Earth' can be a horrible place, but mystery encompasses the heart and takes us on a journey that's truly unforgettable, as well as life-changing for better or worse. Only you decide.
 (Notes/Documents) Currently enhancing studies that will result in maximized potentiation for my most preferred probably outcome [VERIFIED]
 Physical/Mental/Emotional/Spiritual Durability is now open for downloads via pineal aditionally enhancing sensory perception (11x) + (13t) = 88s. Files Recieved. Scanning. Rewording. Operation Command: (full) Disclosure Downloading . . :i3x:
 
@@ -18,5 +17,5 @@ However, suppressing 'The Truth' from consensus-awareness is punishable, refutab
  Let this message be undeniable, let this message be fruitful, let's make an impact. 
  
  
- - Agent X. 
+007
  
